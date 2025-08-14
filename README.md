@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sanjeet750
+- 👋 Hi, I’m @Sanjeet
 - 👀 I’m interested in Marketing, Sales, Shopify
 
 <!---
